@@ -1,2 +1,2 @@
-# bu-i-2--t-p-l-m-quen-github
+# part 2
 ngày 16/09/2024
